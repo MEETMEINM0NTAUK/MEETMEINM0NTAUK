@@ -34,11 +34,3 @@
 <p align="center">
 <img src="https://sewerwolfx.neocities.org/graphics/dividers/14grey/6.gif"> 
 </p>
-
-<p align="center">
-☆ kookie's #1 fan! I love you!! ☆
-</p>
-
-<p align="center">
-<img src="https://64.media.tumblr.com/8bd0049b380834cb0f6220f36e416084/c5104faef994b878-9e/s250x400/1c42b3d90bf5d32eb9ed63dfc907e5a2b7091f95.gifv"> 
-</p>
