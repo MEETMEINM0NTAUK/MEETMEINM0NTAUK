@@ -3,14 +3,14 @@
 </p>
 
 <p align="center">
-☆ <a href="https://rentry.co/slashnkill" target="_blank">RENTRY</a> ☆ <a href="https://pronouns.cc/@CIRCASURVIVE" target="_blank">PRONOUNS.CC</a> ☆ <a href="https://alexisonfire.atabook.org/" target="_blank">ATA</a>
+☆ <a href="https://rentry.co/rads-sick" target="_blank">RENTRY</a> ☆ <a href="https://pronouns.cc/@CIRCASURVIVE" target="_blank">PRONOUNS.CC</a> ☆ <a href="https://alexisonfire.atabook.org/" target="_blank">ATA</a>
 </p>
 
 <p align="center">
 <img src="https://s13.gifyu.com/images/bqGM3.gif"> 
 </p>
 <div align="center">
-  <img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/15black/51.gif">  <img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/1red/43.gif"> <img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/15black/82.gif">
+  <img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/15black/51.gif">  <img src="https://datoxicwaltz.neocities.org/img/shiny/800.gif"> <img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/15black/82.gif">
 </div>
 
 <p align="center">
