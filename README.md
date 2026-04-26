@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-☆ <a href="https://rentry.co/rads-sick" target="_blank">RENTRY</a> ☆ <a href="https://pronouns.cc/@CIRCASURVIVE" target="_blank">PRONOUNS.CC</a> ☆ <a href="https://alexisonfire.atabook.org/" target="_blank">ATA</a>
+☆ <a href="https://rentry.co/slashnkill" target="_blank">RENTRY</a> ☆ <a href="https://pronouns.cc/@CIRCASURVIVE" target="_blank">PRONOUNS.CC</a> ☆ <a href="https://alexisonfire.atabook.org/" target="_blank">ATA</a>
 </p>
 
 <p align="center">
