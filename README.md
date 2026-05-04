@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FMEETMEINM0NTAUK"><img src="https://api.visitorbadge.io/api/daily?path=https%3A%2F%2Fgithub.com%2FMEETMEINM0NTAUK&label=Critters&countColor=%23697689&style=flat" /></a>
+<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FMEETMEINM0NTAUK"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FMEETMEINM0NTAUK&label=creature%20features&labelColor=%23f47373&countColor=%23263759&style=flat&labelStyle=lower" /></a>
 </p>
 
 <p align="center">
