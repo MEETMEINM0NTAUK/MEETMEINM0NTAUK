@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-☆ <a href="https://rentry.co/implayingdead" target="_blank">RENTRY</a> ☆ <a href="https://rentry.co/wellpaidscientist" target="_blank">BOUNDARIES</a> ☆ <a href="https://alexisonfire.atabook.org/" target="_blank">ATA</a>
+☆ <a href="https://rentry.co/implayingdead" target="_blank">RENTRY</a> ☆ <a href="https://rentry.co/wellpaidscientist" target="_blank">BOUNDARIES</a> ☆ <a href="https://rentry.co/implayingdead" target="_blank">LINKS</a>
 </p>
 
 <p align="center">
