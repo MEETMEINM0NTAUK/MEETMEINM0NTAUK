@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-<img src="https://s13.gifyu.com/images/bqGM3.gif"> 
+<img src="https://s13.gifyu.com/images/b78xy.gif"> 
 </p>
 <div align="center">
   <img src="https://datoxicwaltz.neocities.org/img/shiny/1553.gif">  <img src="https://datoxicwaltz.neocities.org/img/shiny/800.gif"> <img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/15black/82.gif">
