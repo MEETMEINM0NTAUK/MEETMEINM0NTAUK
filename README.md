@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-<img src="https://d36vu4awtdgnqw.cloudfront.net/1061m%2Fpreview%2F79969896%2Fmain_large.gif?response-content-disposition=inline%3Bfilename%3D%22main_large.gif%22%3B&response-content-type=image%2Fgif&Expires=1785802880&Signature=Mpc8n-wNIaU4cSAkBpYAoTjjuBwovjdGfNMs~JycjjX1252ae4VOeM~dZspJuR5qwxiaTuDn3KP8PtstF4wUseFIpu-mCHpEuCg4fkjQ02U5rYRAsL2VssbYjr~MMI3Ke7oJ1XNEBWRmdHCpg2eJv9BEk5DB2T6MrdHvNetx1D4NiFQokA4x45QPRkacbFT7XU4zOmYY1spuhLCt8uRbnj8nK7-4pyJ89iWXL5pThVcxkPeOxxgSbfPMVojwJSeDZd~iR~67VhC5MbKYsF~1kTXNYtYQ-QGX94QTxu~Zyw7RGRsXTxgY2HA4w5dVrUwPQWmBKPWNOdxG6l7N-YGVRA__&Key-Pair-Id=APKAJT5WQLLEOADKLHBQ"> 
+<img src="https://i.postimg.cc/9FjZTJsW/ezgif-16e04a513cb98008.gif"> 
 </p>
 <div align="center">
   <img src="https://datoxicwaltz.neocities.org/img/shiny/746.gif">  <img src="https://datoxicwaltz.neocities.org/img/shiny/735.gif"> <img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/1red/21.gif">
