@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/bJtffqzw/willroundedborders.gif"> 
+<img src="https://i.imgur.com/7UxaMY4.gif"> 
 </p>
 <div align="center">
   <img src="https://datoxicwaltz.neocities.org/img/shiny/746.gif">  <img src="https://datoxicwaltz.neocities.org/img/shiny/735.gif"> <img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/1red/21.gif">
