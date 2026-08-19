@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-<img src="https://d1p1y5pyxk2k6i.cloudfront.net/4zgws%2Fpreview%2F80290403%2Fmain_large.gif?response-content-disposition=inline%3Bfilename%3D%22main_large.gif%22%3B&response-content-type=image%2Fgif&Expires=1787096310&Signature=NPz7QokN8x0BPtwDE-HvGfWa6G5YhZD-A3hvMvChcn5JYuD3ZzadHIKD35qDOsITUlJsaTZGaamoZrTDJxtOkGWC9fLr65Sn3iTjsqLqTOnyFw-5tQMQf~0IaqdYGfD7UrhmEuhFsjxIEtUu6ql3XlGcpLBt7921nHTjsbK25X9vL2HC5GVhjrP8AAwvUrtUIV8SzWLAOin7XcXX0bjWzzELTYHrW2LDSBLpHlptujLR1ejwDuL487Exe0y8dy0MuzC~ugn1Z--~pWxpjkwB1LJRs7V6Wv1ndKpIZb5mbBgFAraSnhrK97t~qMyTWMrrHRvzyUpQu7RWHrQFhWYqzg__&Key-Pair-Id=APKAJT5WQLLEOADKLHBQ"> 
+<img src="https://i.imgur.com/29aSNDw.gif"> 
 </p>
 
 <p align="center">
